@@ -2,6 +2,6 @@
 
 ---
 
-<a href="https://drive.google.com/drive/folders/1BGYXmlAubt3ZegLp9qX0YYqoEPHo-7UX?usp=drive_link">Click Here for Books👈🏻</a>
+<a href="https://drive.google.com/drive/folders/1BGYXmlAubt3ZegLp9qX0YYqoEPHo-7UX?usp=drive_link">Thumbs Here!</a>
 
 ---
